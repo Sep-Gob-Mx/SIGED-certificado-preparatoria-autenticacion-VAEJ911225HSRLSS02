@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VAEJ911225HSRLSS02
+VAEJ911225HSRLSS02
